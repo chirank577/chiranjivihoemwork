@@ -1,1 +1,1 @@
-whatever
+life is good
